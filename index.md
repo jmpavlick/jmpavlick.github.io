@@ -10,7 +10,7 @@ I started racing BMX in 2012, as a 21-year-old with no prior background in BMX o
 
 In October 2019, I moved from the Flint, Michigan area to Austin, Texas - not only to advance my career, but also to have more opportunities to train / travel / race. I started working with Tanner Sebesta in March of 2020, and finished NAG 8 for the 2020 season. 2020 was the first year that I had the opportunity to travel and race a full national season, and I am very excited about the progress that I made. From the time that I turned Expert in 2013 until 2020, I had only made two national Expert main events; in 2020, I made nearly every National main that I competed in, and I finished the season with 9 podium finishes.
 
-My goals for the 2021 season are to continue to develop myself as an athlete and rider, and to finish in the top 3 positions for 26-35 Men. I am going to continue to work with Tanner to attack my weaknesses, capitalize on my strengths, and continue to pursue consistency in my training and racing.
+My goals for the 2021 season are to continue to develop myself as an athlete and rider, and to finish in the top 3 NAG for 26-35 Men. I am going to continue to work with Tanner to attack my weaknesses, capitalize on my strengths, and continue to pursue consistency in my training and racing.
 
 In addition to racing, I am a certified USABMX coach. I enjoy working with development-stage riders. I learned everything I know about this sport as an adult, and I believe that this gives me a very process-oriented perspective for teaching basic skills.
 
