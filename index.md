@@ -71,7 +71,7 @@ I work as a software developer in data, reporting, and analytics. I telecommute 
 * 2017 25-29c Worlds Team Qualifier
 
 ## References
-* Tanner Sebesta : (512) 508-5001
+* Tanner Sebesta: (512) 508-5001
 * Howard "Hojo" Johnson: (210) 386-2280
 * Dennis "Yogi" Ybarra - Track Operator, Richfield Park BMX: (810) 919-2086
 * Austin Kelly - Track Operator, Richfield Park BMX: (810) 441-6193
